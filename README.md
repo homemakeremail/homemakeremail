@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @homemakeremail
-- 👀 I’m interested in ... App development.
+- 👀 I’m interested in ... Coder, and App development.
 - 🌱 I’m currently learning ... Sololearn.
 - 💞️ I’m looking to collaborate on ... Ehilntwy 3.14 TT
 - 📫 How to reach me ... Homemakeremail@gmail.com
