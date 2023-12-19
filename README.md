@@ -3,7 +3,7 @@
 Coder, & App development.
 - 🌱 I’m currently learning ... Sololearn.
 - 💞️ I’m looking to collaborate on ...
- Ehilntwy 3.14 TT
+ Ehilntwy 3.14 TT, or on "Ehilntwy, or whitenly."
 - 📫 How to reach me ... Homemakeremail@gmail.com
 
 <!---
